@@ -1,4 +1,4 @@
-# **Join me on tech quest** 
+# **🚀Join me on tech quest...** 
 👋 Hi there! I'm Vedika,  
 💻 Dedicated to continuous learning and collaborative development in the tech community.  
 😄 Coding with a smile: because laughter is the best syntax error handler.   

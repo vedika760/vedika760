@@ -5,7 +5,7 @@
 🚀 When I'm not coding, you can find me exploring new technologies, and sharing knowledge with fellow developers 👩‍💻.
 💪 Let's build great things together! 💡
 
-# **Socials: **
+# Socials: 
 LinkedIn(https://www.linkedin.com/in/vedikaambadkar6849)
 
 
